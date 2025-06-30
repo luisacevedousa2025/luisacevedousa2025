@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @luisacevedousa2025
-- 👀 I’m interested in innovate new medical devices. Optics and Optolectronics. 
-- 🌱 I’m currently learning a MBA and a Healcare Mangement Diploma.
+- 👀 I’m interested in innovate new medical devices. Optics and Optoelectronics. 
+- 🌱 I’m currently learning a MBA and a Healcare Management Diploma.
 - 💞️ I’m looking to collaborate on bio-photonics 
 - 📫 How to reach me by me email.
 - 😄 Pronouns: He
